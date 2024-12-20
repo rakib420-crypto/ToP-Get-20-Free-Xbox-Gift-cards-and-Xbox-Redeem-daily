@@ -3,9 +3,9 @@ Hello, friends. If you love playing games on  Xbox as I do, you know how fun it 
 “Disclaimer: The products listed on this site are not authorized or endorsed by Microsoft Corporation. The information presented here is for informational purposes only and should not be construed as an offer for the sale of Microsoft or Xbox products. We do not claim any association with or endorsement by Microsoft Corporation. Buyers are advised to verify the authenticity of the products before making any purchases.” However, we have bought these codes from different legal sources and sharing the codes as a giveaway with our users.
 
 Free xbox gift card 02
-**[👉👉CLICK HERE TO GET FREE LINK👈👈]  (https://megacrate.xyz/xbox-new-landing/)**
+**[👉👉CLICK HERE TO GET FREE LINK👈👈](https://megacrate.xyz/xbox-new-landing/)**
 
-**[👉👉CLICK HERE TO GET FREE LINK👈👈]  (https://megacrate.xyz/xbox-new-landing/)**
+**[👉👉CLICK HERE TO GET FREE LINK👈👈](https://megacrate.xyz/xbox-new-landing/)**
 
 What are Free Xbox Redeem Codes and Xbox Gift Cards?
 You can say that these Xbox gift cards are special money but only for the Xbox world. They are codes that are made up of letters and numbers (alphanumeric). You can redeem these codes to purchase games, additional game content, movies, TV shows, and more at the Xbox Online Store.
